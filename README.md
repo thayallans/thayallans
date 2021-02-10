@@ -1,4 +1,4 @@
-### 🖖 Hey I'm Thayallan 🖖
-- 👷‍♂️ I build a lot of things so you should follow me on twitter to stay up to date: https://twitter.com/thayallans
-- 📧  Feel free to email me @ thayallan@hey.com
-
+### Bro, is you even grinding ?
+Get with the program. We only meme here. This is Memecca. This is Memican City. This is Memeopolis.
+We are memes
+![](https://komarev.com/ghpvc/?username=thayallans)
